@@ -1,4 +1,4 @@
-![readmebox](https://github.com/AriesFirman/AriesFirman/assets/23626335/99222d17-8eaf-4c8f-b59f-dcf3e4a25837)- !
+![readmebox](https://github.com/AriesFirman/AriesFirman/assets/23626335/99222d17-8eaf-4c8f-b59f-dcf3e4a25837)-!
 
 
 👋 Hi, I’m @AriesFirman
